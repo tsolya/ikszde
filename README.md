@@ -1,0 +1,2 @@
+# ikszde
+github bevezető
