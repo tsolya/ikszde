@@ -8,3 +8,4 @@ eleg komoly mar nem azert er wrwwwwwwwwwwww
 - kenyeer
 - nemjo kenyer
 - menemjo a kenyer
+- nemtom
